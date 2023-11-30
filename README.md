@@ -5,7 +5,8 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=900&size=20&pause=1000&color=1FF7F5&random=false&width=435&lines=Bienvenidos+a+mi+perfil+de+Github)](https://git.io/typing-svg)
 
-![Brown and Grey Minimalist Designer LinkedIn Article Cover Image (1)](https://github.com/gerald-M14/geral-M14/assets/66845405/7a83c9e4-469f-48f9-9efa-8e8ecc62b743)
+![Brown and Grey Minimalist Designer LinkedIn Article Cover Image (1)](https://github.com/gerald-M14/gerald-M14/assets/66845405/71311a24-7a1a-4b3e-9941-49ef8508c21e)
+
 
 
 <h3> Sobre mi: </h3>
